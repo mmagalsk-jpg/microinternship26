@@ -1,1 +1,3 @@
-# microinternship26
+# Mary Magalski
+
+UMD Libraries, 2026
